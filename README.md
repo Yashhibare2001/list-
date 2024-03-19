@@ -1,0 +1,1 @@
+As per the guidelines which was mentions in task which was assigned to us to create the reference page of team members of the company n as per the manual or guidelines we had given maximum 4 days to complete the particular task where we need to show some information of members with there position.
